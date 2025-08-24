@@ -9,3 +9,5 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+
+*RAMA, [https://www.linkedin.com/in/fajar-gilang-ramadhan-7918752a0?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app]
